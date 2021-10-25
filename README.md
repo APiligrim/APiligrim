@@ -10,5 +10,4 @@ Nice to meet you. My name is Anastasiya. I'm a student and am passionate about u
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: ...  [Linkedin](https://www.linkedin.com/in/uraleva/), [Personal Portfolio](https://www.anastasiyauraleva.com/)
 - 😄 Pronouns: ... She/Her
-- ⚡ Fun fact: ... I love to paint with watercolors and gouache😅🎨
 
