@@ -6,6 +6,6 @@
 Nice to meet you. My name is Anastasiya. I'm a student and am passionate about using design and code to solve problems.
 
 - 💬 Ask me about ... Anything
-- 📫 How to reach me: ...  [Linkedin](https://www.linkedin.com/in/uraleva/), [Personal Portfolio](https://www.anastasiyauraleva.com/)
+- 📫 How to reach me: ...  [Linkedin](https://www.linkedin.com/in/uraleva/)
 - 😄 Pronouns: ... She/Her
 
